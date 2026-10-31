@@ -1,0 +1,2 @@
+# EduGlobe
+Mustaqil ish
